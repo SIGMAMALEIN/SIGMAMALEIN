@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SIGMAMALEIN
+- 👋 Hi, I’m @KHALIDKASHMIRI
 - 👀 I’m interested in HACKING
 - 🌱 I’m currently learning TRADING
 - 💞️ I’m looking to collaborate on INSTA
